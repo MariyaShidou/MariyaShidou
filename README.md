@@ -7,7 +7,7 @@ Hihi I'm Dandy! I'm most commonly at Spawn or the Roblox area and my main pony i
 ■ I'm an adult, and I don't want to be friends with anybody under 16.<br />
 ■ <b>PONIES I BLOCK ON SIGHT:</b> Old Gnarpy (RGV), Infected (RGV), Operator (Nullscape), All HP ponies.<br />
 <em>Please IWC if you are a fan of Regretevator and/or Nullscape, I've had many bad experiences with these fandoms.</em><br />
-■ I'd rather you not copy me but I won't stop you <b>as long as you have noticeable differences</b> (e.g. different tail, longer hair) and you <b>aren't copying ponies labeled Kin, Me, or IWC.</b> Also don't have the same pony name as me pretty please...! I'm the holic not you<br />
+■ I'd rather you not copy me but I won't stop you <b>as long as you have noticeable differences</b> (e.g. different tail, longer hair) and you <b>aren't copying ponies labeled Kin, Me, OC, DNI, or IWC.</b> Also don't have the same pony name as me pretty please...!<br />
 ■ I don't like people who disrespect those with DNI, DNT, and similar in their names.<br />
 ■ C+H is always okay whenever possible! You don't need to ask first, and in the chance there is a problem, I'll let you know.<br />
 <em>All sourcemate interaction with kin ponies is very allowed unless stated otherwise!</em><br />
