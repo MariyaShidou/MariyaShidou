@@ -1,4 +1,5 @@
 ## <em>"Painted fingers tapping on cherry..."</em>
+<b>PLANNING ON REDOING THIS WHOLE THING WITH A NEW THEME SOON !!</b><br />
 Hihi I'm Dandy! I'm most commonly at Spawn or the Roblox area and my main pony is Mariya Shidou (he is lovingly named "the holic")<br />
 <b>Please W2I when possible!</b> I'm not good at communication and this is more comfortable for me. Regardless I still love talking :^)<br />
 <br />
