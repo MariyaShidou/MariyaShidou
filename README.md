@@ -6,7 +6,7 @@ Hihi I'm Radley! I'm most commonly at Spawn or the Roblox area. You might know m
 <br />
 ■ I'm an adult, and I don't want to be friends with anybody under 16.<br />
 ■ <b>BLOCKED ON SIGHT:</b> Old Gnarpy RGV (27), Infected RGV (38), Operator Nullscape (10), All HP ponies (12).<br />
-<em>Please IWC if you are a fan of Regretevator and/or Nullscape, I've had many bad experiences with these fandoms.</em><br />
+I'm trying to block people less often, so if I did block you, this is the most likely reason.<br />
 ■ I can't stop you from copying my ponies but I don't like it !! At least be nice to not copy ones that have Kin/Me/OC/Comf in the name!<br />
 ■ I don't like people who disrespect those with DNI, DNT, and similar in their names.<br />
 ■ C+H is always okay whenever possible! You don't need to ask first, and in the chance there is a problem, I'll let you know.<br />
