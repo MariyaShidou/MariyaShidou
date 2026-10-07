@@ -1,5 +1,4 @@
-## <em>"Gathered a bouquet of roses and posies, and straightened my tie...
-## When I got there, you were nowhere I could find."</em>
+## <em>"Gathered a bouquet of roses and posies, and straightened my tie... When I got there, you were nowhere I could find."</em>
 Hihi I'm Radley! I'm most commonly at Spawn or the Roblox area. You might know me as Mariya Shidou (the holic).<br />
 <b>Please W2I when possible!</b> I'm not good at communication and this is more comfortable for me. Regardless I still love talking :^)<br />
 <br />
