@@ -5,7 +5,7 @@ Hihi I'm Radley! I'm most commonly at Spawn or the Roblox area. You might know m
 <img width="800" height="400" alt="A mostly black and white edit of Lucy holding the music box." src="https://konachan.net/image/2e0a3a0a8b0f969c84a819b68608ff3e/Konachan.com%20-%2088310%20elfen_lied%20lucy_%28elfen_lied%29.jpg" /><br />
 <br />
 ■ I'm an adult, and I don't want to be friends with anybody under 16.<br />
-■ <b>BLOCKED ON SIGHT:</b> Old Gnarpy RGV (27), Infected RGV (39), Operator Nullscape (10), All HP ponies (12).<br />
+■ <b>BLOCKED ON SIGHT:</b> Old Gnarpy RGV (27), Infected RGV (40), Operator Nullscape (10), All HP ponies (12).<br />
 I'm trying to block people less often, so if I did block you, this is the most likely reason.<br />
 ■ I can't stop you from copying my ponies but I don't like it !! At least be nice to not copy ones that have Kin/Me/OC/Comf in the name!<br />
 ■ I don't like people who disrespect those with DNI, DNT, and similar in their names.<br />
